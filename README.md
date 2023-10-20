@@ -17,3 +17,12 @@
 
 > Consegui respeito por ser um vencedor
 
+
+> A gente se encontrava sempre às escondidas
+
+> E vivia aquele amor proibido
+
+> Cada novo encontro era sempre perigoso
+
+> Mas o nosso amor era tão gostoso
+
