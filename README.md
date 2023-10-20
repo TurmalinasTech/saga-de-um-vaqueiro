@@ -35,6 +35,13 @@
 
 > E eu, todo prosa, sorria
 
+> Então começamos um namoro apaixonado
+
+> Ela vivia na garupa do meu cavalo
+
+> Meus planos já estavam traçados em meu coração
+
+> De tê-la como esposa ao pedir a sua mão
 
 > Que tristeza abalou meu coração
 
