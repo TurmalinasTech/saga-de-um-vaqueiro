@@ -17,3 +17,10 @@
 
 > Consegui respeito por ser um vencedor
 
+> Decidimos, então, fugir pra outras vaquejadas
+
+> Iríamos seguir
+
+> Marcamos um lugar pra gente se encontrar
+
+> Mas na hora marcada ela não estava lá
