@@ -27,7 +27,6 @@
 > Mas um grande amor surgia em minha vida
 
 
-
 > Naquele dia começou o meu dilema
 
 > Apaixonado por aquela morena
@@ -35,3 +34,12 @@
 > Cada boi que eu derrubava, ela 
 
 > E eu, todo prosa, sorria
+
+
+> Que tristeza abalou meu coração
+
+> Quando seu pai negou-me sua mão
+
+> Desprezou-me, por eu ser um vaqueiro
+
+> Pra sua filha só queria um fazendeiro
