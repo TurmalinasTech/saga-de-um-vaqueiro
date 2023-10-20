@@ -54,6 +54,6 @@
 > Começou a vaquejada e uma disputa acirrada
 > Eu botava o boi no chão, ele também botava
 > Eu entrei na festa e ele lá estava
-> Fiquei impressionado como ele era valente
-> Tão jovem e tão forte, e tão insistente
+> Fiquei impressionado como ele era #valente#
+> Tão jovem e tão forte, e tão ***insistente
 > Eu derrubava o boi e ele sempre em minha frente
