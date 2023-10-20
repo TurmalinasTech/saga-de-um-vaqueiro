@@ -17,3 +17,11 @@
 
 > Consegui respeito por ser um vencedor
 
+
+> Naquele dia começou o meu dilema
+
+> Apaixonado por aquela morena
+
+> Cada boi que eu derrubava, ela 
+
+> E eu, todo prosa, sorria
