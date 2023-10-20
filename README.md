@@ -9,3 +9,11 @@
 > Que ama e chora por dentro, e segue seu destino
 
 
+> Desde cedo assumi minha paixão
+
+> De ser vaqueiro e ser um campeão
+
+> Nas vaquejadas sempre fui batalhador
+
+> Consegui respeito por ser um vencedor
+
