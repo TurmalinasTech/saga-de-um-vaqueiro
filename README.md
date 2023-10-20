@@ -17,3 +17,12 @@
 
 > Consegui respeito por ser um vencedor
 
+
+> Da arquibancada, uma morena me aplaudia
+
+> Seus cabelos longos, olhos negros, sorria
+
+> Perdi um boi naquele dia lá na pista
+
+> Mas um grande amor surgia em minha vida
+
