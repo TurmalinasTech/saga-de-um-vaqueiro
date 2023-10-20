@@ -43,6 +43,15 @@
 
 > De tê-la como esposa ao pedir a sua mão
 
+> A gente se encontrava sempre às escondidas
+
+> E vivia aquele amor proibido
+
+> Cada novo encontro era sempre perigoso
+
+> Mas o nosso amor era tão gostoso
+
+
 > Que tristeza abalou meu coração
 
 > Quando seu pai negou-me sua mão
@@ -50,3 +59,4 @@
 > Desprezou-me, por eu ser um vaqueiro
 
 > Pra sua filha só queria um fazendeiro
+
