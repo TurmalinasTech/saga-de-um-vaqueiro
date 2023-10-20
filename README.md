@@ -26,3 +26,11 @@
 
 > Mas um grande amor surgia em minha vida
 
+
+> Vieram me contar que mandaram ela pra longe
+
+> Onde o vento se esconde o som do berrante se desfaz
+
+> Um fruto do nosso amor ela estava a esperar
+
+
