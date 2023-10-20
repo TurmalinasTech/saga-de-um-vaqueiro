@@ -17,3 +17,12 @@
 
 > Consegui respeito por ser um vencedor
 
+> Voltei em um galope, saí cortando o vento
+
+> Como se procura uma novilha no relento
+
+> E tudo em mim chorava por dentro
+
+> E tudo em mim chorava por dentro
+
+
