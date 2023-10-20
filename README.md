@@ -26,3 +26,12 @@
 
 > Mas um grande amor surgia em minha vida
 
+
+
+> Naquele dia começou o meu dilema
+
+> Apaixonado por aquela morena
+
+> Cada boi que eu derrubava, ela 
+
+> E eu, todo prosa, sorria
