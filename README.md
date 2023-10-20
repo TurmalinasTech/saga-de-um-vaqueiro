@@ -18,6 +18,24 @@
 > Consegui respeito por ser um vencedor
 
 
+> Da arquibancada, uma morena me aplaudia
+
+> Seus cabelos longos, olhos negros, sorria
+
+> Perdi um boi naquele dia lá na pista
+
+> Mas um grande amor surgia em minha vida
+
+
+> Naquele dia começou o meu dilema
+
+> Apaixonado por aquela morena
+
+> Cada boi que eu derrubava, ela 
+
+> E eu, todo prosa, sorria
+
+
 > A gente se encontrava sempre às escondidas
 
 > E vivia aquele amor proibido
@@ -25,4 +43,3 @@
 > Cada novo encontro era sempre perigoso
 
 > Mas o nosso amor era tão gostoso
-
