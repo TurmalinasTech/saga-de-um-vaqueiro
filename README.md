@@ -43,3 +43,33 @@
 > Desprezou-me, por eu ser um vaqueiro
 
 > Pra sua filha só queria um fazendeiro
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+> Nunca mais soube de nada do que lá acontecia
+
+> Eu fugia da minha dor e da minha agonia
+
+> Ser sempre campeão era a minha alegria
