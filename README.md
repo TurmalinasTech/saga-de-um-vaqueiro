@@ -50,3 +50,11 @@
 > Desprezou-me, por eu ser um vaqueiro
 
 > Pra sua filha só queria um fazendeiro
+
+>Eu chorava (eu chorava) de feliz (feliz)
+
+>Abraçado com o meu filho
+
+>Um vaqueiro como eu, eu nunca tinha visto
+
+>Posso confessar: o maior prêmio Deus me deu
