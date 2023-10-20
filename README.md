@@ -26,3 +26,51 @@
 
 > Mas um grande amor surgia em minha vida
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+> Um dia eu fui convidado pra uma vaquejada
+
+> Naquela região
+
+> Pensei em não voltar lá
+
+> Mas um bom vaqueiro nunca pode vacilar
+
+
+
+
+
+
