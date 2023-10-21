@@ -31,9 +31,27 @@
 
 > Apaixonado por aquela morena
 
-> Cada boi que eu derrubava, ela 
+> Cada boi que eu derrubava, ela aplaudia
 
 > E eu, todo prosa, sorria
+
+
+> Então começamos um namoro apaixonado
+
+> Ela vivia na garupa do meu cavalo
+
+> Meus planos já estavam traçados em meu coração
+
+> De tê-la como esposa ao pedir a sua mão
+
+
+> Que tristeza abalou meu coração
+
+> Quando seu pai negou-me sua mão
+
+> Desprezou-me, por eu ser um vaqueiro
+
+> Pra sua filha só queria um fazendeiro
 
 
 > A gente se encontrava sempre às escondidas
@@ -45,11 +63,5 @@
 > Mas o nosso amor era tão gostoso
 
 
-> Que tristeza abalou meu coração
 
-> Quando seu pai negou-me sua mão
-
-> Desprezou-me, por eu ser um vaqueiro
-
-> Pra sua filha só queria um fazendeiro
 
