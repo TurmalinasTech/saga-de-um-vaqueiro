@@ -54,6 +54,15 @@
 > Pra sua filha só queria um fazendeiro
 
 
+> A gente se encontrava sempre às escondidas
+
+> E vivia aquele amor proibido
+
+> Cada novo encontro era sempre perigoso
+
+> Mas o nosso amor era tão gostoso
+
+
 > Decidimos, então, fugir pra outras vaquejadas
 
 > Iríamos seguir
