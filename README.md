@@ -35,6 +35,7 @@
 
 > E eu, todo prosa, sorria
 
+
 > Então começamos um namoro apaixonado
 
 > Ela vivia na garupa do meu cavalo
@@ -43,6 +44,7 @@
 
 > De tê-la como esposa ao pedir a sua mão
 
+
 > Que tristeza abalou meu coração
 
 > Quando seu pai negou-me sua mão
@@ -50,3 +52,22 @@
 > Desprezou-me, por eu ser um vaqueiro
 
 > Pra sua filha só queria um fazendeiro
+
+
+> A gente se encontrava sempre às escondidas
+
+> E vivia aquele amor proibido
+
+> Cada novo encontro era sempre perigoso
+
+> Mas o nosso amor era tão gostoso
+
+
+> Decidimos, então, fugir pra outras vaquejadas
+
+> Iríamos seguir
+
+> Marcamos um lugar pra gente se encontrar
+
+> Mas na hora marcada ela não estava lá
+
